@@ -44,7 +44,9 @@
 ![Screenshot 2024-11-29 140930](https://github.com/user-attachments/assets/b980d6c2-c6db-4b7b-8ec3-8ebd4ecd4347)
 
 
-![Screenshot 2024-11-29 142326](https://github.com/user-attachments/assets/2d42449d-5d19-4e1b-869c-8503968edc76)
+
+!![Screenshot 2024-11-29 142326](https://github.com/user-attachments/assets/7f00fdd2-83dd-4815-8e68-7558021e08e2)
+
 
 
 !![Screenshot 2024-11-29 142919](https://github.com/user-attachments/assets/b3ecd100-66fc-4de0-ad22-ce6814473a6a)
